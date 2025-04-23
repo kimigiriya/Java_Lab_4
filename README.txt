@@ -1,3 +1,3 @@
 Ссылка на exeшники
-https://drive.google.com/drive/u/2/folders/1ty617Xg0qtLnrnrM80-oZJXknlrm7zaq
+https://drive.google.com/drive/folders/11pP7npvq2dfNY3PVRytiE0zqfA9XPoRs
 Работа была выполнена совместно с Алиной Новожиловой и Ярославом Решетниковым
